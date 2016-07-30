@@ -1,3 +1,6 @@
 # New-Project
 First time making a project
-//I like pie and this sentence is wierd
+Where is the programming at m8?
+Wut the?
+Wierd.
+Well I'm going to do my research and then I'll be back
